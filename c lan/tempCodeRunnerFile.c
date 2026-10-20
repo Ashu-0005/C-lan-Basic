@@ -1,1 +1,0 @@
-otal Marks: 5 subjects ke marks ka 
